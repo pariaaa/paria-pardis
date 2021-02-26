@@ -1,3 +1,2 @@
 # paria-pardis
-hi this paria 
-im 22
+hi this is ayla i'm suicidal
